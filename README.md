@@ -9,7 +9,6 @@
 <strong>ꕀ</strong>
 </p>
 ⠀
-⠀
 <p align="center">
 <img src=https://github.com/user-attachments/assets/9e8537a3-037b-4c7d-8936-8a1c2dcec6ab>
 </p>
@@ -20,11 +19,11 @@
 
 </p>
 ⠀
-⠀
-⠀
-<p align="center">
 
-</p>
+<div align="center">
+
+[***stamp collection !***](https://mysweetiiheart.carrd.co/)
+</div>
 
 </p>
 
