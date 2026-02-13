@@ -10,7 +10,8 @@
 </p>
 ⠀
 <p align="center">
-<img width="843" height="441" alt="beautybanner" src="https://github.com/user-attachments/assets/8b3baaf5-95ee-4727-b826-ee747c1fafa6" />
+<img width="841" height="252" alt="output-onlinepngtools (5)" src="https://github.com/user-attachments/assets/7a8ffe2d-8d32-4d28-a610-bdbb91c04705" />
+
 </p>
 
 <p align="center">
