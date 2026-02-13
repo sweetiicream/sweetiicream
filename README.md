@@ -8,7 +8,7 @@
 </p>
 ⠀
 <p align="center">
-<strong>⏖</strong> <img width="841" height="252" alt="output-onlinepngtools (5)" src="https://github.com/user-attachments/assets/7a8ffe2d-8d32-4d28-a610-bdbb91c04705" />
+<img width="841" height="252" alt="output-onlinepngtools (5)" src="https://github.com/user-attachments/assets/7a8ffe2d-8d32-4d28-a610-bdbb91c04705" />
 <strong>⏖</strong>
 </p>
 
