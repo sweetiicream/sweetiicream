@@ -9,8 +9,14 @@
 ⠀
 <p align="center">
 <img width="841" height="252" alt="output-onlinepngtools (5)" src="https://github.com/user-attachments/assets/7a8ffe2d-8d32-4d28-a610-bdbb91c04705" />
-<strong>⏖</strong>
 </p>
+
+<div align="center">
+   
+[![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Montez&size=19&duration=4983&pause=1000&color=F79B9C&center=true&width=435&lines=can+you+imagine+%3F;desecrating+another+person's+corpse+!;just+to+feel+some+semblance+of+comfort+in+this+hell+.;comfort+.+.+.+thats+sick+right+~+%3F)](https://git.io/typing-svg)
+
+   <strong>⏖</strong>
+</div>
 
 <p align="center">
 ${\textsf{\color{#DB4D5C}❝⠀⠀do⠀⠀you⠀⠀miss⠀⠀me⠀⠀,⠀⠀miss⠀⠀me⠀⠀,⠀⠀ah⠀⠀.ᐟ⠀⠀❞}}$
