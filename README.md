@@ -26,10 +26,18 @@ ${\textsf{\color{#DB4D5C}❝⠀⠀do⠀⠀you⠀⠀miss⠀⠀me⠀⠀,⠀⠀miss
 </br>⠀⠀⠀,,⠀⠀⠀
   </br> [**ᵖʳⁿˢ**](https://en.pronouns.page/@beautiihoney/)
 </div>
+</br>
+⠀ㅤ
+⠀ㅤ
+⠀ㅤ
+⠀ㅤ
+</br><p align="left">
+ac⠀⠀:⠀⠀preisgae
+</p>ㅤ
 
 
-ㅤ
-</p>
+
+
 
 </p>
 
