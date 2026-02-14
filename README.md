@@ -22,9 +22,9 @@ ${\textsf{\color{#DB4D5C}❝⠀⠀do⠀⠀you⠀⠀miss⠀⠀me⠀⠀,⠀⠀miss
 
 <div align="center">
 
-   ⠀[**ˢᵗᵃᵐᵖˢ**](https://mysweetiiheart.carrd.co/) ｡
+   ⠀[***ˢᵗᵃᵐᵖˢ***](https://mysweetiiheart.carrd.co/) ｡
 </br>⠀⠀⠀ᰔ⠀⠀⠀
-  </br>  ⠀[**ᵖʳⁿˢ**](https://en.pronouns.page/@beautiihoney/) ｡
+  </br>  ⠀[***ᵖʳⁿˢ . ᵖᵃᵍᵉ***](https://en.pronouns.page/@beautiihoney/) ｡
 </div>
 </br>
 <p align="center">
