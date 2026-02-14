@@ -17,7 +17,7 @@ ${\textsf{\color{#DB4D5C}❝⠀⠀do⠀⠀you⠀⠀miss⠀⠀me⠀⠀,⠀⠀miss
 </p>
 
 <p align="center">
-<img src="https://github.com/user-attachments/assets/3c51a082-3026-43bc-ab59-a30122dd3116">
+
 </p>⠀
 
 <div align="center">
@@ -27,7 +27,9 @@ ${\textsf{\color{#DB4D5C}❝⠀⠀do⠀⠀you⠀⠀miss⠀⠀me⠀⠀,⠀⠀miss
   </br> [**ᵖʳⁿˢ**](https://en.pronouns.page/@beautiihoney/)
 </div>
 </br>
-⠀ㅤ
+<p align="center">
+<img src="https://github.com/user-attachments/assets/5397de20-b929-428d-919c-2ee55124d14b">
+</p>
 ⠀ㅤ
 ⠀ㅤ
 ⠀ㅤ
