@@ -13,7 +13,7 @@
 </p>
 
 <p align="center">
-${\textsf{\color{#DB4D5C}❝⠀⠀ʸᵒᵘ⠀ᶜᵃⁿᵗ⠀ˢᵉᵉᵐ⠀ᵗᵒ⠀ʰᵒˡᵈ⠀ᵐʸ⠀ʰᵉᵃʳᵗ⠀. . .}}$ ${\textsf{\color{#607D71}close⠀to⠀you⠀!⠀⠀❞}}$
+${\textsf{\color{#DB4D5C}❝⠀⠀ʸᵒᵘ⠀ᶜᵃⁿᵗ⠀ˢᵉᵉᵐ⠀ᵗᵒ⠀ʰᵒˡᵈ⠀ᵐʸ⠀ʰᵉᵃʳᵗ⠀. . . ᶜˡᵒˢᵉ⠀ᵗᵒ⠀ʸᵒᵘ⠀.ᐟ⠀⠀❞}}$
 </p>
 
 <p align="center">
