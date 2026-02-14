@@ -17,7 +17,7 @@ ${\textsf{\color{#DB4D5C}❝⠀⠀do⠀⠀you⠀⠀miss⠀⠀me⠀⠀,⠀⠀miss
 </p>
 
 <p align="center">
-<img src=https://github.com/user-attachments/assets/3e9777ea-96c1-4759-81c5-f0a024f14454>
+<img src="https://github.com/user-attachments/assets/3c51a082-3026-43bc-ab59-a30122dd3116">
 </p>⠀
 
 <div align="center">
