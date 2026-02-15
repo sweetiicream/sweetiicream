@@ -19,7 +19,7 @@
 </div>
 
 <p align="center">
-${\textsf{\color{#9E776B}❝⠀⠀do⠀⠀you⠀⠀miss⠀⠀me⠀⠀,⠀⠀miss⠀⠀me⠀⠀,⠀⠀ah⠀⠀.ᐟ⠀⠀❞}}$
+${\textsf{\color{#AC5B66}❝⠀⠀그녀는 나의 샴푸의 요정⠀,⠀이제는 너를 사랑할꺼야⠀.ᐟ⠀⠀❞}}$
 </p>
 
 <p align="center">
