@@ -19,7 +19,7 @@
 </div>
 
 <p align="center">
-${\textsf{\color{#DB4D5C}❝⠀⠀do⠀⠀you⠀⠀miss⠀⠀me⠀⠀,⠀⠀miss⠀⠀me⠀⠀,⠀⠀ah⠀⠀.ᐟ⠀⠀❞}}$
+${\textsf{\color{#BF5D68}❝⠀⠀do⠀⠀you⠀⠀miss⠀⠀me⠀⠀,⠀⠀miss⠀⠀me⠀⠀,⠀⠀ah⠀⠀.ᐟ⠀⠀❞}}$
 </p>
 
 <p align="center">
