@@ -1,4 +1,5 @@
 <p align="center">
+<img width="60" height="60" alt="lil bowww" src="https://github.com/user-attachments/assets/099e7025-50b8-40b8-b3f4-15784037a3c7" />
 
 </p>
 
