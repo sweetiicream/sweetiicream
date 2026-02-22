@@ -13,13 +13,13 @@
 
 <div align="center">
    
-[![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Montez&size=19&duration=4983&pause=1000&color=F79B9C&center=true&width=435&lines=can+you+imagine+%3F;desecrating+another+person's+corpse+!;just+to+feel+some+semblance+of+comfort+in+this+hell+.;comfort+.+.+.+thats+sick+right+~+%3F)](https://git.io/typing-svg)
+
 
    <strong>⏖</strong>
 </div>
 
 <p align="center">
-${\textsf{\color{#AC5B66}❝⠀⠀그녀는 나의 샴푸의 요정⠀,⠀이제는 너를 사랑할꺼야⠀.ᐟ⠀⠀❞}}$
+
 </p>
 
 <p align="center">
@@ -34,7 +34,7 @@ ${\textsf{\color{#AC5B66}❝⠀⠀그녀는 나의 샴푸의 요정⠀,⠀이제
 </div>
 </br>
 <p align="center">
-<img src="https://github.com/user-attachments/assets/5397de20-b929-428d-919c-2ee55124d14b">
+
 </p>
 ⠀ㅤ
 
@@ -42,7 +42,7 @@ ${\textsf{\color{#AC5B66}❝⠀⠀그녀는 나의 샴푸의 요정⠀,⠀이제
 
 ⠀ㅤ
 </br><p align="left">
-ac⠀⠀:⠀⠀LOADING...
+<sub>ac⠀⠀:⠀⠀LOADING...</sub>
 </p>ㅤ
 
 
