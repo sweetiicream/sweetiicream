@@ -1,14 +1,16 @@
 <img align="left" width="200" height="200" alt="tiny malware" src="https://github.com/user-attachments/assets/9cb286f9-83e9-4c84-92fd-6a3742cba5cf"/>
   ⠀
-<div align="center">
-   <strong>⏖</strong>
-</div>
+<p align="center">
+<strong>⏖</strong>
+</p>
 
+<div align="center"> 
+ 
+  [***ˢᵗᵃᵐᵖˢ***](https://mysweetiiheart.carrd.co/) ｡
+</br>
 <div align="center">
    
-   ⠀[***ˢᵗᵃᵐᵖˢ***](https://mysweetiiheart.carrd.co/) ｡
-</br>⠀⠀⠀ᰔ⠀⠀⠀
-  </br>  ⠀[***ᵖʳⁿˢ . ᵖᵃᵍᵉ***](https://en.pronouns.page/@beautiihoney/) ｡
+  [***ᵖʳⁿˢ . ᵖᵃᵍᵉ***](https://en.pronouns.page/@beautiihoney/) ｡
 </div>
 </br>
 <p align="center">
