@@ -1,5 +1,5 @@
 <p align="center">
-<img width="300" height="300" alt="tiny malware" src="https://github.com/user-attachments/assets/9cb286f9-83e9-4c84-92fd-6a3742cba5cf" />
+<img width="200" height="200" alt="tiny malware" src="https://github.com/user-attachments/assets/9cb286f9-83e9-4c84-92fd-6a3742cba5cf" />
 
 
 </p>
@@ -27,7 +27,7 @@
 </div>
 </br>
 <p align="center">
-<img width="60" height="60" alt="lil bowww" src="https://github.com/user-attachments/assets/04041489-f07b-4f78-b71f-1af800275c1a" />
+<img width="30" height="30" alt="lil bowww" src="https://github.com/user-attachments/assets/04041489-f07b-4f78-b71f-1af800275c1a" />
 
 </p>
 ⠀ㅤ
