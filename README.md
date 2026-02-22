@@ -20,8 +20,9 @@
 ⠀ㅤ
 
 ⠀ㅤ
+⠀ㅤ
 </br><p align="left">
-<sub>ac⠀⠀:⠀⠀LOADING...</sub>
+<sub><strong>ac⠀⠀;⠀⠀buwk⠀⠀,⠀⠀luvfqwn</strong></sub>
 </p>ㅤ
 
 
