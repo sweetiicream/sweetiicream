@@ -1,4 +1,4 @@
-<img align="right" width="350" height="350" alt="tiny malware" src="https://github.com/user-attachments/assets/17c96275-6505-4bda-b5b4-68fc626bd941"/>
+<img align="right" width="350" height="350" alt="tiny malware" src="https://github.com/user-attachments/assets/538deaef-ca3a-4162-a79d-2422408461c9"/>
   ⠀
 <p align="center">
 <strong>⏖</strong>
