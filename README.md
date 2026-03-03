@@ -1,4 +1,4 @@
-<img align="right" img width="640" height="447.5" alt="tumblr_ab0e98859c598445d133b715429ae3eb_e62cf96a_1280" src="https://github.com/user-attachments/assets/f21a013e-a4fd-4edf-b1e1-65961efbc00c"/>
+<img align="right" img width="549" height="384" alt="sonic35th" src="https://github.com/user-attachments/assets/7cefc11e-64af-4c30-8410-1cd1f74c2ceb" />
   ⠀
 <p align="center">
 <strong>⏖</strong>
