@@ -27,7 +27,7 @@ redecorating ,
 ⠀ㅤ
 ⠀ㅤ
 </br><p align="center">
-<sub><strong>ac⠀⠀;⠀⠀loopy-lupe⠀⠀,⠀⠀luvfqwn</strong></sub>
+<sub><strong>ac⠀⠀;⠀⠀loopy-lupe</strong></sub>
 </p>ㅤ
 
 
