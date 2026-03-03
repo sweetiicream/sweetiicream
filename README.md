@@ -1,4 +1,4 @@
-<img align="right" img width="549" height="384" alt="sonic35th" src="https://github.com/user-attachments/assets/7cefc11e-64af-4c30-8410-1cd1f74c2ceb" />
+<img align="right" img width="521.55" height="364.8" alt="sonic35th" src="https://github.com/user-attachments/assets/7cefc11e-64af-4c30-8410-1cd1f74c2ceb" />
   ⠀
 <p align="center">
 <strong>⏖</strong>
