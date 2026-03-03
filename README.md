@@ -14,7 +14,7 @@
 </div>
 </br>
 <p align="center">
-<img width="30" height="30" alt="lil bowww" src="https://github.com/user-attachments/assets/04041489-f07b-4f78-b71f-1af800275c1a" />
+<img width="30" height="30" alt="lil bowww blue" src="https://github.com/user-attachments/assets/32f517e5-e53a-49c5-8681-bdf75a7369f5" />
 
 </p>
 ⠀ㅤ
