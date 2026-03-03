@@ -1,4 +1,4 @@
-<img align="right" width="350" height="350" alt="tiny malware" src="https://github.com/user-attachments/assets/538deaef-ca3a-4162-a79d-2422408461c9"/>
+<img align="right" img width="640" height="447.5" alt="tumblr_ab0e98859c598445d133b715429ae3eb_e62cf96a_1280" src="https://github.com/user-attachments/assets/f21a013e-a4fd-4edf-b1e1-65961efbc00c"/>
   ⠀
 <p align="center">
 <strong>⏖</strong>
@@ -27,7 +27,7 @@ redecorating ,
 ⠀ㅤ
 ⠀ㅤ
 </br><p align="center">
-<sub><strong>ac⠀⠀;⠀⠀buwk⠀⠀,⠀⠀luvfqwn</strong></sub>
+<sub><strong>ac⠀⠀;⠀⠀loopy-lupe⠀⠀,⠀⠀luvfqwn</strong></sub>
 </p>ㅤ
 
 
