@@ -14,12 +14,17 @@
 </div>
 </br>
 <p align="center">
-<img width="30" height="30" alt="lil bowww blue" src="https://github.com/user-attachments/assets/32f517e5-e53a-49c5-8681-bdf75a7369f5" />
+<img width="30" height="30" alt="lil bowww" src="https://github.com/user-attachments/assets/c8b987c0-2ea7-4557-baaf-009ba9c4fc58" />
+
 
 </p>
 ⠀ㅤ
 <p align="center">
-redecorating ,
+<img src="https://github.com/user-attachments/assets/4a5a9acc-2884-4ee6-a6bd-89fe2187a92f"/>
+<img src="https://github.com/user-attachments/assets/8a632a82-3a30-419f-9908-a624e36bf8fb"/>
+
+
+
 
 
 ⠀ㅤ
@@ -27,7 +32,7 @@ redecorating ,
 ⠀ㅤ
 ⠀ㅤ
 </br><p align="center">
-<sub><strong>ac⠀⠀;⠀⠀loopy-lupe</strong></sub>
+<sub><strong>ac⠀⠀;⠀⠀loopy-lupe⠀⠀,⠀⠀lavendergalactic</strong></sub>
 </p>ㅤ
 
 
