@@ -1,4 +1,5 @@
 
+
   ⠀
 
 
@@ -22,16 +23,16 @@
 <p align="center">
 </br>#ˢᶜʳᵉʷʳᵘⁿˢᵒⁿⁱᶜ
 
-
-
-
+<p align="center">
+</br> <img width="317.7" height="176.7" alt="Screenshot 2026-03-13 163332" src="https://github.com/user-attachments/assets/3c635f15-7494-454b-b857-b8827a6f9020" />
+</p>
 
 ⠀ㅤ
 
 ⠀ㅤ
 ⠀ㅤ
 </br><p align="center">
-<sub><strong> acㅤㅤ;ㅤㅤart_zyy </sub>
+<sub><strong> acㅤㅤ;ㅤㅤart_zyyㅤㅤ,ㅤㅤparfaitcookie </sub>
 </p>ㅤ
 
 
