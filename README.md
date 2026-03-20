@@ -14,25 +14,13 @@
 </br>
 <p align="center">
 
-<sub> ${\textsf{\color{#91D4D4}shesㅤㅤㅤㅤ.}}$ㅤ ${\textsf{\color{#8BA9CC}runningㅤㅤㅤㅤ.}}$ㅤ</sub> <sub> ${\textsf{\color{#D4D19B}outㅤㅤㅤㅤ.}}$ㅤ ${\textsf{\color{#D994B6}theㅤㅤㅤㅤ.}}$ㅤ ${\textsf{\color{#8F929A}door｡}}$ </sub>
-</br> <sub> ${\textsf{\color{#D4D19B}shesㅤㅤㅤㅤ.}}$ㅤ ${\textsf{\color{#8F929A}runningㅤㅤㅤㅤ.}}$ㅤ ${\textsf{\color{#91D4D4}out｡}}$ </sub>
-</br> <sub> ${\textsf{\color{#8BA9CC}sheㅤㅤㅤㅤㅤㅤㅤㅤrunㅤㅤㅤㅤㅤㅤㅤㅤㅤrunㅤㅤㅤㅤㅤㅤㅤㅤㅤrun}}$
-</br> <sub>ㅤㅤㅤㅤㅤㅤㅤㅤ<strong>R ㅤUㅤ N</strong>ㅤㅤㅤㅤㅤㅤㅤㅤ
-</p>
-⠀ㅤ
 <p align="center">
-</br>#ˢᶜʳᵉʷʳᵘⁿˢᵒⁿⁱᶜ
-
-<p align="center">
-</br> <img width="317.7" height="176.7" alt="hesawquandaledingle" src="https://github.com/user-attachments/assets/3c635f15-7494-454b-b857-b8827a6f9020" />
+</br> <img src="https://github.com/user-attachments/assets/4d4293a5-8334-4329-8925-ddb2278a6e7d"/>
 </p>
 
-⠀ㅤ
-
-⠀ㅤ
-⠀ㅤ
+ㅤ
 </br><p align="center">
-<sub><strong> acㅤㅤ;ㅤㅤart_zyyㅤㅤ,ㅤㅤparfaitcookie </sub>
+<sub><strong> </sub>
 </p>ㅤ
 
 
