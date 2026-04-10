@@ -15,12 +15,12 @@
 <p align="center">
 
 <p align="center">
-</br> <img src="https://github.com/user-attachments/assets/4d4293a5-8334-4329-8925-ddb2278a6e7d"/>
+</br> 
 </p>
 
 ㅤ
 </br><p align="center">
-<sub><strong> </sub>
+<sub><strong> revamping soon!! mwah! </sub>
 </p>ㅤ
 
 
