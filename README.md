@@ -13,6 +13,7 @@
 </div>
 </br>
 <p align="center">
+<img width="480" height="404.8" alt="stsolisbanner" src="https://github.com/user-attachments/assets/3529bd3e-eeaf-4de5-b902-0f9130903552" />
 
 <p align="center">
 </br> 
