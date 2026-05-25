@@ -1,5 +1,5 @@
 
-
+revamp incoming
   ⠀
 
 
@@ -9,12 +9,7 @@
 </br>
 <div align="center">
    
-  𓈒⠀⠀　︶𝝑ৎ ⠀　　. ͜  <img src= "https://github.com/user-attachments/assets/ad35a37a-a0a4-432a-ab78-e601519592a5" />｡
-⠀⠀⠀⠀⠀ⁱ ᵈᵒⁿᵗ ʷᵃⁿⁿᵃ ᶜᵃˡˡ　,
-</br> 𝝑 　︵  　　　<sub>**y𝑜u**re　t𝑜𝑜　**fa**r　fr𝑜m　**me**  <sub>　᭪⠀⠀　𓈒
-</div>
-<p align="center">
-<img width="480" height="404.8" alt="stsolisbanner" src="https://github.com/user-attachments/assets/3529bd3e-eeaf-4de5-b902-0f9130903552" />
+
 
 
 <div align="center">
