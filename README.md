@@ -18,7 +18,7 @@
 </br>
 <div align="right">
 
-<sub>𓈒ㅤㅤㅤㅤ*𝗻𝗲*𝓮dㅤㅤ𝘁oㅤㅤ<strong>*?*</strong> </sub>  ㅤㅤ<img src= https://github.com/user-attachments/assets/67acb6e5-7b7d-4a5f-84e8-bcd19eaa2990 />
+𓈒ㅤㅤㅤㅤ*𝗻𝗲*𝓮dㅤㅤ𝘁oㅤㅤ<strong>*?*</strong>   ㅤㅤ<img src= https://github.com/user-attachments/assets/67acb6e5-7b7d-4a5f-84e8-bcd19eaa2990 />
 </br>
 </br>
 </br>
