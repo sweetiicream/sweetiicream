@@ -1,34 +1,23 @@
 
 
+
   ⠀
 
 
 <div align="center"> 
- 
+<img src= https://github.com/user-attachments/assets/2f922a12-41b0-4803-a93d-f98a169a81fd />
   
 </br>
 <div align="center">
    
 
-
-
-<div align="center">
-  
-[<img src="https://readme-typing-svg.herokuapp.com?font=Hi+Melody&size=31&duration=1&color=F39960&center=true&vCenter=true&repeat=false&width=82&height=23&lines=prns" alt="Typing SVG" /></a>](https://en.pronouns.page/@beautiihoney/)*｡*　　　︶　　
-  [<img src="https://readme-typing-svg.herokuapp.com?font=Hi+Melody&size=31&duration=1&color=F39960&center=true&vCenter=true&repeat=false&width=82&height=23&lines=stamps" alt="Typing SVG" /></a>](https://mysweetiiheart.carrd.co/)*｡*　
-</div>
-</br>
-</p>
 ㅤ
 </br><p align="center">
-<sub>
-</sub>
-</p>ㅤ
 
+<sub>𝙨𝙝hh 　𝙬ip 　　*✿*<sub>
 
-
-
-
+</br>
+<sub> 𝒶𝒸　𓈒　𝒷𝑒𝒶𝓇𝓎<sub>
 
 
 <!--
