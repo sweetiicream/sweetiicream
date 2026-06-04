@@ -1,11 +1,10 @@
-　
 　 　
 
   ⠀
 
 
 <div align="center"> 
-<img src= https://github.com/user-attachments/assets/2f922a12-41b0-4803-a93d-f98a169a81fd />
+<img src= https://github.com/user-attachments/assets/2805f9c2-669c-496e-910b-5dbf5f11a1db />
 
 </br>
 <div align="center">
