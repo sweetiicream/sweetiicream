@@ -1,9 +1,10 @@
+
  
 <div align="left">
    
-<sub><img src= https://github.com/user-attachments/assets/6f1a8a2b-17c5-4180-ae3f-214abeaca809 />｡ㅤㅤㅤ*₊*　　　ㅤㅤㅤ𝘁𝗵𝓮nㅤㅤ𝘄𝓱*y*ㅤ
+<sub><img src=https://github.com/user-attachments/assets/d219e339-c019-447f-a4b3-c918db137056 />｡ㅤㅤㅤ*₊*　　　ㅤㅤㅤ𝗮𝗻d ㅤㅤ𝘆o*u*ㅤㅤㅤ*𝗱*𝗼nt
 </br>
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ*𝗱*𝗼ㅤㅤ𝗶ㅤㅤ𝘀𝗲𝓮*m*ㅤ⠀𝘁𝗼⠀⠀　ㅤㅤ⠀𓈒ㅤ　　ㅤ𝝑౿　
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ𝘀𝗲𝓮*m*ㅤ⠀𝘁𝗼⠀⠀　*𝘂*𝗻𝗱𝗲rstandㅤㅤ⠀𓈒ㅤ　　ㅤ𝝑౿　
 </sub>⠀ 
 </br>
 
@@ -13,12 +14,16 @@
 
 <div align="center"> 
    
-<img src= https://github.com/user-attachments/assets/2cbb8941-4832-4d6f-9341-79389b714ec4 />
+<img src=https://github.com/user-attachments/assets/5b78f76b-1a4b-4f81-bc37-666b71b56424 />
+
 
 </br>
 <div align="right">
 
-𓈒ㅤㅤㅤㅤ*𝗻𝗲*𝓮dㅤㅤ𝘁oㅤㅤ<strong>*?*</strong>   ㅤㅤ<img src= https://github.com/user-attachments/assets/67acb6e5-7b7d-4a5f-84e8-bcd19eaa2990 />
+<sub>𓈒ㅤㅤㅤ𝗮ㅤ*𝘀𝓱a*m𝓮ㅤㅤ𝘆o*u*ㅤ𝘀𝗲𝓮me*d*ㅤ   ㅤㅤ
+</br>
+𝗮nㅤㅤㅤ𝓱o𝗻estㅤㅤ𝗺𝗮 *n* ㅤㅤㅤㅤㅤ₊ㅤ<img src=https://github.com/user-attachments/assets/c7e2ff90-0b1d-4746-922a-5643605b60c3 />
+</sub>
 </br>
 </br>
 </br>
