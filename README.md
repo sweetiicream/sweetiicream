@@ -43,7 +43,7 @@
 <div align="right">
 </br>
 　<sub>a𝒸　{ </sub>　
-</br><sub>vs mouse　ult　　lavendergalactic</sub>　　
+</br><sub>vs mouse ult　　lavendergalactic</sub>　　
 <sub> <sub>
 
 
