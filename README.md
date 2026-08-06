@@ -33,7 +33,7 @@
 <div align="center">
 
 
-<sub>ωip *✿*</sub>
+<sub>ωip ㅤㅤ✿</sub>
 
 <div align="right">
 </br>
