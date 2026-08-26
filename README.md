@@ -14,7 +14,7 @@
 <div align="center">
 <table>
 <td>
-<sub><img src="https://github.com/user-attachments/assets/40409f88-1b6c-41a0-917e-ad888563cc72" /> </sub>
+<sub><img src="https://github.com/user-attachments/assets/0f9f44aa-e0a0-43f7-bd25-e074adaf5061" /> </sub>
 </td>
 </table>
 <sub>
