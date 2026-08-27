@@ -13,13 +13,9 @@
 </br>    
 </br>
 <div align="center">
-<table>
-<td>
+
 <sub><img src="https://github.com/user-attachments/assets/f56ed7aa-5164-4ad7-9532-d2e564952dbc" /> </sub>
-</td>
-</table>
-<sub>
-</sub>
+
 </br>
 </br>
 </br>
