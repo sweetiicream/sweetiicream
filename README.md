@@ -15,7 +15,7 @@
 </br>
 <div align="center">
 
-<sub> **𝗺o**chi　╱　*𝓬 rea*m </sub>
+<sub> **𝗺o**chi　　╱　　*𝓬 rea*m </sub>
 
 </br>
 
