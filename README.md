@@ -15,7 +15,7 @@
 </br>
 <div align="center">
 
-<sub>( ✿ 𓈒. .𓈒 ︡𐑠 </sub>
+<sub>（✿˘ ᵕ ˘） </sub>
 
 </br>
 
