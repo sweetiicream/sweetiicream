@@ -15,7 +15,7 @@
 </br>
 <div align="center">
 
-<sub><img src="https://github.com/user-attachments/assets/6c7b2313-19d5-486a-9489-197e8292eb8e" /> </sub>
+<sub> </sub>
 
 </br>
 </br>
