@@ -15,7 +15,7 @@
 </br>
 <div align="center">
 
-<sub> </sub>
+<sub>( ✿ 𓈒. .𓈒 ︡𐑠 </sub>
 
 </br>
 
