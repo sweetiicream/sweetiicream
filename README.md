@@ -28,7 +28,7 @@
 <div align="center">
 
 
-<sub>*wip*　𓈒   ᥥ ᰍ</sub>
+<sub>*wip*　　　　𓈒   ᥥ ᰍ</sub>
 
 <div align="right">
 </br>
