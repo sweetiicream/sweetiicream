@@ -15,11 +15,11 @@
 </br>
 <div align="center">
 
-<sub> **ოo**chi　　⸝　　*𝓬 rea*m </sub> 
+<sub>wip</sub> 
 
 </br>
 
- 𝒮ᵉᵐⁱㅤㅤₐ𝓬ₜᵢᵥₑ 
+
 <div align="center">
 
  
@@ -28,7 +28,7 @@
 <div align="center">
 
 
-<sub>*rmk*</sub>
+<sub></sub>
 
 <div align="right">
 </br>
