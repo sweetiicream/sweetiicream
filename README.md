@@ -43,11 +43,11 @@
 <details>
      <summary><strong>ac<strong></summary>
 
-  
-  <sub>tetsuya nomura</sub>
-　<br><sub>mim029</sub>　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　<br><sub>oimkimn</sub>
-  <br><sub>rouwan</sub>
-　</details>
+</br>
+
+###
+<sub>tetsuya nomura</sub>ㅤ<sub>mim029</sub>ㅤ<sub>oimkimn</sub>ㅤ<sub>rouwan</sub>
+</details>
 
 <!--
 **sweetiicream/sweetiicream** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
