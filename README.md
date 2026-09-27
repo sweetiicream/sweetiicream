@@ -1,14 +1,6 @@
 
 
 
-
-
-<sub>　
-</sub>⠀ 
-</sub>
-
-
-
 <div align="center">
 <img src=https://github.com/user-attachments/assets/31d6ec1e-935d-449b-8f20-1e19882d96fc/>
 
