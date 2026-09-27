@@ -2,6 +2,7 @@
 
 
 
+
 <sub>　
 </sub>⠀ 
 </sub>
@@ -9,25 +10,22 @@
 
 
 <div align="center">
+<img src=https://github.com/user-attachments/assets/31d6ec1e-935d-449b-8f20-1e19882d96fc/>
 
 
 </br>    
 </br>
 <div align="center">
 
-<sub>wip</sub> 
-  <details>
-     <summary><strong>ac<strong></summary>
-
+<sub>wip blehh</sub> 
   
-  <sub>tetsuya nomura</sub>
-　<sub>mim029</sub>　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　<sub>oimkimn</sub>
-  <sub>rouwan</sub>
-　</details>
 </br>
 
 
 <div align="center">
+<img src=https://github.com/user-attachments/assets/d4723f51-c478-4285-945e-52f224c9bf66/>
+
+
 
  
 <sub>　　　　
@@ -41,8 +39,15 @@
 </br>
 　<sub>
 </br>　
-<sub> <sub>
 
+<details>
+     <summary><strong>ac<strong></summary>
+
+  
+  <sub>tetsuya nomura</sub>
+　<br><sub>mim029</sub>　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　<br><sub>oimkimn</sub>
+  <br><sub>rouwan</sub>
+　</details>
 
 <!--
 **sweetiicream/sweetiicream** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
