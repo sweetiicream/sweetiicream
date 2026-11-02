@@ -12,7 +12,7 @@
 
 <sub>wip blehh</sub>
 </br>
-<sub>happy halloween!</sub>
+<sub>
   
 </br>
 </br>
